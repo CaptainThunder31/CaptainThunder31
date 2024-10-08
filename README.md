@@ -1,4 +1,4 @@
-     <h2>  || CaptainThunder31 ||</h2>
+   #   || CaptainThunder31 ||
 
         [Experimenting with]
           [Web Development]
@@ -7,8 +7,8 @@
 
        Let's Change the World 🔥
 
-   Always interested in new stuffs
-          related to tech.
+     Always interested in new 
+      stuffs related to tech.
 
           ---To contact---
    
