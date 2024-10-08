@@ -5,11 +5,11 @@
                [and]
          [Mechine Learning 😄]
 
-     Let's Change the World 🔥
+       Let's Change the World 🔥
 
    Always interested in new stuffs
-        [-related to tech-]
+          related to tech.
 
           ---To contact---
-           
-| captainthunderofficial@gmail.com |
+   
+   captainthunderofficial@gmail.com 
