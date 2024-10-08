@@ -5,9 +5,9 @@
                [and]
          [Mechine Learning 😄]
 
-     __Let's Change the World 🔥__
+     Let's Change the World 🔥
 
- [-Always interested in new stuffs-]
+   Always interested in new stuffs
         [-related to tech-]
           ---To contact---
            
