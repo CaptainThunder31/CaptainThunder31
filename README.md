@@ -9,6 +9,7 @@
 
    Always interested in new stuffs
         [-related to tech-]
+
           ---To contact---
            
 | captainthunderofficial@gmail.com |
