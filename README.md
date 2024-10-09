@@ -8,7 +8,7 @@
        Let's Change the World 🔥
 ## Collaboration 🤝:
      Always interested in new 
-    stuffs related to tech and coding.
+     stuffs related to coding.
 
 ## To contact 📪:
    
